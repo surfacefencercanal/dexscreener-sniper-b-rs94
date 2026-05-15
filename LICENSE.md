@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with dexscreener sniper bot professional Bot - pump-detection and auto-buy, the #1 dexscreener sniper bot. Includes pump-detection and auto-buy for a faster
 
 
 
